@@ -1,18 +1,4 @@
-sdccsd
-
-dc
 sd
-sdc
-d
-sc
-scd
-scd
-s
-dc
-sc
-sc
-s
-
 
 dscasxaccscScd
 sa
