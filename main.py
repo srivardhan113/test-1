@@ -1,13 +1,5 @@
-se lo vunna changes ivi
 
 
-
-
-
-dcse
-dce
-dc
-d
 vd
 v
 ever
@@ -23,19 +15,6 @@ dc
 ed
 ceacea
 sdccsd
-
-dc
-sd
-sdc
-d
-sc
-scd
-scd
-s
-dc
-sc
-sc
-s
 
 
 dscasxaccscScd
